@@ -1,4 +1,8 @@
-<p align="center">NOOO MAMA I LIKE GIRLS MAMA</p>
+<p align="center">user ioriel bullies me real footage</p>
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/3f3b2aa7-f08d-431b-9198-08fb5bb513ca" width="350" height="350" />
+</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
