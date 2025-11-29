@@ -1,7 +1,5 @@
-<p align="center">user ioriel bullies me real footage</p>
-
 <p align="center">
-<img src="https://github.com/user-attachments/assets/3f3b2aa7-f08d-431b-9198-08fb5bb513ca" width="350" height="350" />
+<img src="https://github.com/user-attachments/assets/83dcf80f-1640-48bd-9fc6-22bea16e5233" width="300" height="350" />
 </p>
 
 <p align="center">
