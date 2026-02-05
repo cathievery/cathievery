@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/83dcf80f-1640-48bd-9fc6-22bea16e5233" width="300" height="350" />
+lesbian ashley graves is canon dni andrew likers
 </p>
 
 <p align="center">
