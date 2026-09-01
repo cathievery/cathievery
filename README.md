@@ -1,7 +1,9 @@
 <p align="center">
-enabler , wk , tauradonna dni
+<img src="https://komarev.com/ghpvc/?username=rosecaliber&label=☀️&color=grey&style=plastic" />
 </p>
-
 <p align="center">
-<img src="https://github.com/user-attachments/assets/aad16d17-4a5a-4482-8df2-1ad246b8bd75" />
+<img src="https://github.com/user-attachments/assets/41341424-3d34-4ed6-ab7e-3f2473997084" width="389" height="271" />
+</p>
+<p align="center">
+$\color{Orange}{\text{⠀17⠀i don't bite⠀}}$
 </p>
